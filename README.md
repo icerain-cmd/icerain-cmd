@@ -1,4 +1,4 @@
-# Lee Yongwook (이용욱)
+# Lee Yong Wook (이용욱)
 
 **Professor of Korean Language and Literature, Jeonju University**  
 Humanities Engineering · Artificial Nature Ontology · Media Aesthetics
